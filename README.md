@@ -1,3 +1,3 @@
 # Shimm's Team
-### Members:
+### **Members:**
 ### Ethan Shimmel
